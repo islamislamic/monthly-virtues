@@ -3,7 +3,8 @@
 
 ### Virtue
 It is one of the sacred month that Allah mentioned in Qur’an
-> Verily, the number of months with Allah is twelve months (in a year), so was it ordained by Allah on the Day when He created the heavens and the earth; of them four are Sacred, (i.e. the 1st, the 7th, the 11th and the 12th months of the Islamic calendar). That is the right religion, so wrong not yourselves therein - [At-Tawbah 9:36]
+> Verily, the number of months with Allah is twelve months (in a year), so was it ordained by Allah on the Day when He created the heavens and the earth; of them four are Sacred, (i.e. the 1st, the 7th, the 11th and the 12th months of the Islamic calendar). That is the right religion, so wrong not yourselves therein - 
+> &mdash; <cite>[At-Tawbah 9:36]</cite>
 
 It is also narrated that the Prophet (Peace be upon him) said:
 > The year is twelve months, of which four are sacred: three consecutive months, Dhu al-Qa‘dah, Dhu al-Hijjah and Muharram, and Rajab of Mudar which comes between Jumaada and Sha‘baan - Bukhari
