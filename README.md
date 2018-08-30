@@ -10,8 +10,12 @@ It is also narrated that the Prophet (Peace be upon him) said:
 
 ### Worships
 #### Highly Recommended:
-Fast on the day of ‘Ashoora’, the 10th of Maharram.  “Fasting the day of Ashoora I hope Allah will expiate thereby for the year that came before it” - Muslim.  Ibn Abbas also said “I never saw the Prophet (PBHUM) so keen to make sure he fasted any day and preferring it over another except this day, the day of ‘Ashoora’…” - Bukhari. 
- Fast on 9th Day (Tasso’a) of Maharram.  Prophet (PBUH) said “Next year, if Allaah wills, we will fast on the ninth day.” But by the time the following year came, the Messenger of Allaah (peace and blessings of Allaah be upon him) had passed away.” - Muslim. 
+- Fast on the day of ‘Ashoora’, the 10th of Maharram.  
+> Fasting the day of Ashoora I hope Allah will expiate thereby for the year that came before it - Muslim.  
+Ibn Abbas also said:
+> I never saw the Prophet (PBHUM) so keen to make sure he fasted any day and preferring it over another except this day, the day of ‘Ashoora’…” - Bukhari.
+ 
+- Fast on 9th Day (Tasso’a) of Maharram.  Prophet (PBUH) said: `Next year, if Allaah wills, we will fast on the ninth day.` - Muslim. 
 
 #### Encouraged:
 Fast on 11th of Maharram.  There are difference of opinion regarding this.
