@@ -24,4 +24,7 @@ It is also narrated that the Prophet (Peace be upon him) said:
 - Fast on 11th of Maharram.  There are difference of opinion regarding this.
 - Perform lots of fasting.  "The best fast after Ramadan is in the month of Allah Muharram" - Muslim
 
-
+### References
+[Virtues of Muharram - Islam QA](https://islamqa.info/en/204142)
+[Virtues of Aashoora - Islam QA](https://islamqa.info/en/21775)
+[Issues regarding fasting 11th of Muharram](https://islamqa.info/en/128423)
