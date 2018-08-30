@@ -1,37 +1,20 @@
-## Welcome to GitHub Pages
+# Virtues and Worships of the 12 Months
+## Muharram
 
-You can use the [editor on GitHub](https://github.com/islamislamic/monthly-virtues/edit/master/README.md) to maintain and preview the content for your website in Markdown files.
+### Virtue
+It is one of the sacred month that Allah mentioned in Qur’an
+> Verily, the number of months with Allah is twelve months (in a year), so was it ordained by Allah on the Day when He created the heavens and the earth; of them four are Sacred, (i.e. the 1st, the 7th, the 11th and the 12th months of the Islamic calendar). That is the right religion, so wrong not yourselves therein - [At-Tawbah 9:36]
 
-Whenever you commit to this repository, GitHub Pages will run [Jekyll](https://jekyllrb.com/) to rebuild the pages in your site, from the content in your Markdown files.
+It is also narrated that the Prophet (Peace be upon him) said:
+> The year is twelve months, of which four are sacred: three consecutive months, Dhu al-Qa‘dah, Dhu al-Hijjah and Muharram, and Rajab of Mudar which comes between Jumaada and Sha‘baan - Bukhari
 
-### Markdown
+### Worships
+#### Highly Recommended:
+Fast on the day of ‘Ashoora’, the 10th of Maharram.  “Fasting the day of Ashoora I hope Allah will expiate thereby for the year that came before it” - Muslim.  Ibn Abbas also said “I never saw the Prophet (PBHUM) so keen to make sure he fasted any day and preferring it over another except this day, the day of ‘Ashoora’…” - Bukhari. 
+ Fast on 9th Day (Tasso’a) of Maharram.  Prophet (PBUH) said “Next year, if Allaah wills, we will fast on the ninth day.” But by the time the following year came, the Messenger of Allaah (peace and blessings of Allaah be upon him) had passed away.” - Muslim. 
 
-Markdown is a lightweight and easy-to-use syntax for styling your writing. It includes conventions for
+#### Encouraged:
+Fast on 11th of Maharram.  There are difference of opinion regarding this.
+Perform lots of fasting.  “The best fast after Ramadan is in the month of Allah Muharram” - Muslim
 
-```markdown
-Syntax highlighted code block
 
-# Header 1
-## Header 2
-### Header 3
-
-- Bulleted
-- List
-
-1. Numbered
-2. List
-
-**Bold** and _Italic_ and `Code` text
-
-[Link](url) and ![Image](src)
-```
-
-For more details see [GitHub Flavored Markdown](https://guides.github.com/features/mastering-markdown/).
-
-### Jekyll Themes
-
-Your Pages site will use the layout and styles from the Jekyll theme you have selected in your [repository settings](https://github.com/islamislamic/monthly-virtues/settings). The name of this theme is saved in the Jekyll `_config.yml` configuration file.
-
-### Support or Contact
-
-Having trouble with Pages? Check out our [documentation](https://help.github.com/categories/github-pages-basics/) or [contact support](https://github.com/contact) and we’ll help you sort it out.
