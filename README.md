@@ -15,10 +15,11 @@ It is also narrated that the Prophet (Peace be upon him) said:
 Ibn Abbas also said:
 > I never saw the Prophet (PBHUM) so keen to make sure he fasted any day and preferring it over another except this day, the day of ‘Ashoora’…” - Bukhari.
  
-- Fast on 9th Day (Tasso’a) of Maharram.  Prophet (PBUH) said: ```"Next year, if Allaah wills, we will fast on the ninth day." - Muslim.```
+- Fast on 9th Day (Tasso’a) of Maharram.  Prophet (PBUH) said: 
+> Next year, if Allaah wills, we will fast on the ninth day. - Muslim.
 
 #### Encouraged:
 - Fast on 11th of Maharram.  There are difference of opinion regarding this.
-- Perform lots of fasting.  `"The best fast after Ramadan is in the month of Allah Muharram" - Muslim`
+- Perform lots of fasting.  "The best fast after Ramadan is in the month of Allah Muharram" - Muslim
 
 
