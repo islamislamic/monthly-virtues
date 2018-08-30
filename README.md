@@ -13,7 +13,7 @@ It is also narrated that the Prophet (Peace be upon him) said:
 #### Highly Recommended:
 - Fast on the day of ‘Ashoora’, the 10th of Maharram.  
 > Fasting the day of Ashoora I hope Allah will expiate thereby for the year that came before it - Muslim.  
-
+>
 Ibn Abbas also said:
 > I never saw the Prophet (PBHUM) so keen to make sure he fasted any day and preferring it over another except this day, the day of ‘Ashoora’…” - Bukhari.
  
