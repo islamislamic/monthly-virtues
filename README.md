@@ -3,11 +3,12 @@
 
 ### Virtue
 It is one of the sacred month that Allah mentioned in Qur’an
-> Verily, the number of months with Allah is twelve months (in a year), so was it ordained by Allah on the Day when He created the heavens and the earth; of them four are Sacred, (i.e. the 1st, the 7th, the 11th and the 12th months of the Islamic calendar). That is the right religion, so wrong not yourselves therein - 
+> Verily, the number of months with Allah is twelve months (in a year), so was it ordained by Allah on the Day when He created the heavens and the earth; of them four are Sacred, (i.e. the 1st, the 7th, the 11th and the 12th months of the Islamic calendar). That is the right religion, so wrong not yourselves therein 
 > &mdash; <cite>[At-Tawbah 9:36]</cite>
 
 It is also narrated that the Prophet (Peace be upon him) said:
-> The year is twelve months, of which four are sacred: three consecutive months, Dhu al-Qa‘dah, Dhu al-Hijjah and Muharram, and Rajab of Mudar which comes between Jumaada and Sha‘baan - Bukhari
+> "The year is twelve months, of which four are sacred: three consecutive months, Dhu al-Qa‘dah, Dhu al-Hijjah and Muharram, and Rajab of Mudar which comes between Jumaada and Sha‘baan."
+> &mdash; <cite>Bukhari</cite>
 
 ### Worships
 #### Highly Recommended:
@@ -25,6 +26,6 @@ It is also narrated that the Prophet (Peace be upon him) said:
 - Perform lots of fasting.  "The best fast after Ramadan is in the month of Allah Muharram" - Muslim
 
 ### References
-[Virtues of Muharram - Islam QA](https://islamqa.info/en/204142)
-[Virtues of Aashoora - Islam QA](https://islamqa.info/en/21775)
-[Issues regarding fasting 11th of Muharram](https://islamqa.info/en/128423)
+- [Virtues of Muharram - Islam QA](https://islamqa.info/en/204142)
+- [Virtues of Aashoora - Islam QA](https://islamqa.info/en/21775)
+- [Issues regarding fasting 11th of Muharram](https://islamqa.info/en/128423)
