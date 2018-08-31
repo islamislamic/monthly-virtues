@@ -1,5 +1,6 @@
 # Virtues and Worships of the 12 Months
 ## Muharram
+Muharram is the first month in Islamic Hijri calendar. No dubt this is one of the virtues month of the year.
 
 ### Virtue
 It is one of the sacred month that Allah mentioned in Qur’an
@@ -12,7 +13,7 @@ It is also narrated that the Prophet (Peace be upon him) said:
 
 There are some additional virtues and mentioning of this month:
 - Prophet Nuh’s Ark came to rest on Mount Judi on this day <cite>- Ibn Kathir</cite>
-- Fasting on 9th day (Ashoora) used to be obligatory before fasting in the month of the Ramadan became obligatory. <cite>- Bukhari<cite>
+- Fasting on 9th day (Ashoora) used to be obligatory before fasting in the month of the Ramadan became obligatory. `<cite>- Bukhari<cite>`
   
 
 ### Worships
