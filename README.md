@@ -34,4 +34,4 @@ There are some additional virtues and mentioning of this month:
 - [Virtues of Muharram - Islam QA](https://islamqa.info/en/204142)
 - [Virtues of Aashoora - Islam QA](https://islamqa.info/en/21775)
 - [Issues regarding fasting 11th of Muharram](https://islamqa.info/en/128423)
-- [10 Virtues of](https://ilmfeed.com/10-virtues-of-the-10th-of-muharram-day-of-ashura/)
+- [10 Virtues of the Muharram - Ilmfeed](https://ilmfeed.com/10-virtues-of-the-10th-of-muharram-day-of-ashura/)
