@@ -10,6 +10,11 @@ It is also narrated that the Prophet (Peace be upon him) said:
 > "The year is twelve months, of which four are sacred: three consecutive months, Dhu al-Qa‘dah, Dhu al-Hijjah and Muharram, and Rajab of Mudar which comes between Jumaada and Sha‘baan."
 > &mdash; <cite>Bukhari</cite>
 
+There are some additional virtues and mentioning of this month:
+- Prophet Nuh’s Ark came to rest on Mount Judi on this day <cite>- Ibn Kathir</cite>
+- Fasting on 9th day (Ashoora) used to be obligatory before fasting in the month of the Ramadan became obligatory. <cite>- Bukhari<cite>
+  
+
 ### Worships
 #### Highly Recommended:
 - Fast on the day of ‘Ashoora’, the 10th of Maharram.  
@@ -19,13 +24,14 @@ It is also narrated that the Prophet (Peace be upon him) said:
   > I never saw the Prophet (PBHUM) so keen to make sure he fasted any day and preferring it over another except this day, the  day of ‘Ashoora’…” - Bukhari.
  
 - Fast on 9th Day (Tasso’a) of Maharram.  Prophet (PBUH) said: 
-> Next year, if Allaah wills, we will fast on the ninth day. - Muslim.
+  > Next year, if Allaah wills, we will fast on the ninth day. - Muslim.
 
 #### Encouraged:
 - Fast on 11th of Maharram.  There are difference of opinion regarding this.
 - Perform lots of fasting.  "The best fast after Ramadan is in the month of Allah Muharram" - Muslim
-
+- Spend on your family on 10th of this month. <cite>- Al-Bayhaqi, Shu’ab al-Iman and also supported by narration by Imam Ahmad ibn Hanbal</cite>
 ### References
 - [Virtues of Muharram - Islam QA](https://islamqa.info/en/204142)
 - [Virtues of Aashoora - Islam QA](https://islamqa.info/en/21775)
 - [Issues regarding fasting 11th of Muharram](https://islamqa.info/en/128423)
+- [10 Virtues of](https://ilmfeed.com/10-virtues-of-the-10th-of-muharram-day-of-ashura/)
